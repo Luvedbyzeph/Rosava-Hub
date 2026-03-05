@@ -1,1 +1,1 @@
-Ts aint ready go look at frosty hub
+Rosava Hub yes im ac workin on ts
